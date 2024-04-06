@@ -1,0 +1,1 @@
+# Analyzing-University-Guidelines-on-AI
